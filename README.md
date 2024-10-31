@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Web development, game development**
 
-- 📫 How to reach me **Prasadkankhar6@gmail.com**
+- 📫 How to reach me **Prasadkankhar5@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
